@@ -3,7 +3,7 @@ Lorem impsum
 
 Dolor sit amen
 
-Coś dodać trzeba 
+Cozasadzś dodać trzeb nie no wa 
 
 
 kurna, jak to działa
