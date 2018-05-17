@@ -4,12 +4,17 @@ Lorem impsum dolor sit ament lol
 Dolor sit amen
 
 
+Cozasadzś dodać trzeb nie no wa 
+Dodaję
+Kolejną
+ Zmianę! 
+ 
+
 Coś dodać trzeba 
 
 W zasadzie wolna wola
 Ale co by nie mówić
 
-W zasadzie nie bo nie
 
 kurna, jak to działa
 Jak asZ Dzienniek
