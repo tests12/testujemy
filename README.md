@@ -3,7 +3,6 @@ Lorem impsum dolor sit ament lol
 
 Dolor sit amen
 
-Coś Nie trzeba tutaj dodawać dodać trzeba ]
 
 Coś dodać trzeba 
 
