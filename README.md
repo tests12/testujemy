@@ -1,18 +1,12 @@
 # testujemy
+Lorem impsum
 
-Zrobię jakiś opis, żeby potem móc mergować go z innymi branchami n
+Dolor sit amen
 
-123
-
-321
+Coś tutaj dodać trzeba 
 
 
-Jednak chciałbym tutaj wstawić tekst looool
+1233221
 
-123
-333
-321542
-112355
-
-222
-11
+Jak ascad
+asdfasdfasdfasdfasdf
