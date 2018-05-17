@@ -6,7 +6,6 @@ Dolor sit amen
 Coś tutaj dodać trzeba 
 
 
-1233221
-
+kurna, jak to działa
 Jak ascad
 asdfasdfasdfasdfasdf
