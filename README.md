@@ -1,10 +1,10 @@
 # testujemy
 
-Zrobię tutaj jakiś opis, żeby potem móc mergować go z innymi branchami n
+Zrobię jakiś opis, żeby potem móc mergować go z innymi branchami n
 
 123
-321
-123
-333
+321542
+112355
+
 222
 11
